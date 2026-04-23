@@ -1,8 +1,8 @@
 # Marca
 
-- Nombre: Avelie Chile
-- Qué vende / hace: Ropa y accesorios femeninos (moda elegante, versátil y accesible)
-- Público objetivo: Mujeres 30-55, interesadas en verse elegantes, cómodas y seguras, compran online y valoran calidad/precio
-- Tono de voz: cercano, elegante, confiable, femenino (no juvenil)
-- Tema de esta semana: outfits elegantes y combinables para el día a día (trabajo, salidas, rutina)
-- Objetivo de la semana: aumentar ventas y generar confianza (DMs, consultas, guardados)
+- Nombre: Avelié
+- Qué vende / hace: Producto de belleza tipo lifting facial (Avelié Lift Stick Balm), inspirado en Dr. Melaxin Calcium Vacuum
+- Público objetivo: Mujeres 30-55 que buscan verse más firmes, rejuvenecidas y cuidadas sin procedimientos invasivos
+- Tono de voz: cercano, elegante, confiable, experto pero simple
+- Tema de esta semana: efecto lifting visible, cuidado facial práctico y resultados reales
+- Objetivo de la semana: generar confianza, educar sobre el producto y aumentar ventas (DM y compra directa)
